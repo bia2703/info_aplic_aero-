@@ -1,4 +1,4 @@
-# pratica_01
-Beatriz de Alvarenga Simões Dias 
+info_aplic_aero
+beatriz de Alvarenga Simões Dias
 	1460682113028
   
